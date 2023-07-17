@@ -1,0 +1,2 @@
+# samajh
+ek din marjayega
